@@ -1,0 +1,2 @@
+# destekblogu.com
+destekblogu.com
